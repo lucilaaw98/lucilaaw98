@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lucilaaw98
+- 👀 I’m interested in learning Web Design
+- 🌱 I’m currently learning Web Design
+- 💞️ I’m looking to collaborate on creative thinking and design in general.
